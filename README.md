@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rutujakhedkar98@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1R80U6R90j-lsXXbz2UBfSuPpN7FAGBFY/view?usp=drive_link](https://drive.google.com/file/d/1R80U6R90j-lsXXbz2UBfSuPpN7FAGBFY/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1R80U6R90j-lsXXbz2UBfSuPpN7FAGBFY/view?usp=drive_link](https://drive.google.com/file/d/1beJ7edjtG3Nf1i1KPQRM7lHuCo-ywm0h/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
